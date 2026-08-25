@@ -8,7 +8,7 @@ We will display previous Bible verses as well.
 
 ## Bible verse for August 25th, 2026 (*Jeremiah 4:22, KJV*):
 > ✞ **"For my people is foolish, they have not known
-> me; they are sottish children, and have none
+> me; they are sottish children, and they have none
 > understanding: they are wise to do evil, but to do
 > good they have no knowledge."**
 
