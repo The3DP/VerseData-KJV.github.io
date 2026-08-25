@@ -6,7 +6,13 @@ We will display previous Bible verses as well.
 
 ---
 
-## Bible verse for August 24th, 2026 (Matthew 5:39, KJV):
+## Bible verse for August 25th, 2026 (*Jeremiah 4:22, KJV*):
+> ✞ **"For my people is foolish, they have not known
+> me; they are sottish children, and have none
+> understanding: they are wise to do evil, but to do
+> good they have no knowledge."**
+
+## Bible verse for August 24th, 2026 (*Matthew 5:39, KJV*):
 > ✞ **"But I say unto you, That ye resist not evil:
 > but whosoever shall smite thee on thy right cheek,
 > turn to him the other also."
