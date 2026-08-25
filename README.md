@@ -6,6 +6,11 @@ We will display previous Bible verses as well.
 
 ---
 
+## Bible verse for August 24th, 2026 (Matthew 5:39, KJV):
+> ✞ **"But I say unto you, That ye resist not evil:
+> but whosoever shall smite thee on thy right cheek,
+> turn to him the other also."
+
 ## Bible verse for August 22nd, 2026 (*Proverbs 28:13, KJV*):
 > ✞ **"He who covereth his sins shall not prosper:
 > but whoso confesseth and forsaketh them shall
