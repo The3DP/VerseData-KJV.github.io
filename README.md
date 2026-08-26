@@ -6,6 +6,11 @@ We will display previous Bible verses as well.
 
 ---
 
+## Bible verse for August 26th, 2026 (*Revelation 3:21, KJV*):
+> ✞ **"To him that overcometh will I grant to sit with
+> me in my throne, even as I also overcame, and am
+> set down with my Father in his throne.
+
 ## Bible verse for August 25th, 2026 (*Jeremiah 4:22, KJV*):
 > ✞ **"For my people is foolish, they have not known
 > me; they are sottish children, and they have none
