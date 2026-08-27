@@ -6,10 +6,16 @@ We will display previous Bible verses as well.
 
 ---
 
+## Bible verse for August 27th, 2026 (*Isaiah 29:15, KJV*):
+> ✞ **"Woe unto them that seek deep to hide their
+> counsel from the Lord, and their works are in
+> the dark, and they say, Who seeth us? and who
+> knoweth us?"**
+
 ## Bible verse for August 26th, 2026 (*Revelation 3:21, KJV*):
 > ✞ **"To him that overcometh will I grant to sit with
 > me in my throne, even as I also overcame, and am
-> set down with my Father in his throne.
+> set down with my Father in his throne."**
 
 ## Bible verse for August 25th, 2026 (*Jeremiah 4:22, KJV*):
 > ✞ **"For my people is foolish, they have not known
