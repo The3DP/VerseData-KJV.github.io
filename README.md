@@ -6,6 +6,10 @@ We will display previous Bible verses as well.
 
 ---
 
+## Bible verse for August 29th, 2026 (*Proverbs 20:16, KJV*):
+> ✞ **"Take his garment that is surety for a stranger:
+> and take a pledge of him for a strange woman."**
+
 ## Bible verse for August 27th, 2026 (*Isaiah 29:15, KJV*):
 > ✞ **"Woe unto them that seek deep to hide their
 > counsel from the Lord, and their works are in
