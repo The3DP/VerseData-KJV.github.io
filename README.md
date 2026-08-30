@@ -8,7 +8,7 @@ We will display previous Bible verses as well.
 
 ## Bible verse for August 30th, 2026 (*1st Corinthians 15:28, KJV*):
 > ✞ **"And when all things shall be subdued unto him,
-> then shall the Son also himself be subject unto him,
+> then shall the Son also himself be subject unto him
 > that put all things under him, that
 > God may be all in all."**
 
