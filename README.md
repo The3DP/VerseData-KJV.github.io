@@ -6,6 +6,12 @@ We will display previous Bible verses as well.
 
 ---
 
+## Bible verse for September 2nd, 2026 (*Jeremiah 17:13*):
+> ✞ **"O Lord, the hope of Israel, all that forsake thee
+> shall be ashamed, and they that depart from me shall be
+> written in the earth, because they have forsaken the Lord,
+> the fountain of living waters."**
+
 ## Bible verse for August 30th, 2026 (*1st Corinthians 15:28, KJV*):
 > ✞ **"And when all things shall be subdued unto him,
 > then shall the Son also himself be subject unto him
