@@ -6,7 +6,11 @@ We will display previous Bible verses as well.
 
 ---
 
-## Bible verse for September 2nd, 2026 (*Jeremiah 17:13*):
+## Bible verse for September 4th, 2026 (*Hosea 9:17, KJV*):
+> ✞ **"My God will cast them away, because they did not hearken
+> unto him: and they shall be wanderers among the nations."**
+
+## Bible verse for September 2nd, 2026 (*Jeremiah 17:13, KJV*):
 > ✞ **"O Lord, the hope of Israel, all that forsake thee
 > shall be ashamed, and they that depart from me shall be
 > written in the earth, because they have forsaken the Lord,
