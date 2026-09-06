@@ -6,6 +6,11 @@ We will display previous Bible verses as well.
 
 ---
 
+## Bible verse for September 6th, 2026 (*Hosea 9:17, KJV*):
+> ✞ **"He that is of a proud heart stirreth up strife:
+> but he that putteth his trust in the Lord shall be
+> made fat."**
+
 ## Bible verse for September 4th, 2026 (*Hosea 9:17, KJV*):
 > ✞ **"My God will cast them away, because they did not hearken
 > unto him: and they shall be wanderers among the nations."**
