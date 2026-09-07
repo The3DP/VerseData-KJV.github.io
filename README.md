@@ -6,7 +6,11 @@ We will display previous Bible verses as well.
 
 ---
 
-## Bible verse for September 6th, 2026 (*Hosea 9:17, KJV*):
+## Bible verse for September 7th, 2026 (*Jeremiah 2:31, KJV*):
+> ✞ **"O generation, see ye the word of the Lord.
+> Have I been a wilderness unto Israel? a land
+> of darkness? wherefore say my people, We are
+> lords; we will come no more unto thee?"**
 
 ## Bible verse for September 6th, 2026 (*Proverbs 28:25, KJV*):
 > ✞ **"He that is of a proud heart stirreth up strife:
