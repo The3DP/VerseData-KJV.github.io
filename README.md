@@ -6,6 +6,10 @@ We will display previous Bible verses as well.
 
 ---
 
+## Bible verse for September 12th, 2026 (*Genesis 9:13, KJV*):
+> ✞ **"I do set my bow in the cloud, and it shall be for
+> a token of a covenant between me and the earth."**
+
 ## Bible verse for September 7th, 2026 (*Jeremiah 2:31, KJV*):
 > ✞ **"O generation, see ye the word of the Lord.
 > Have I been a wilderness unto Israel? a land
